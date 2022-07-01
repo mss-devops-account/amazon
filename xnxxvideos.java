@@ -7,3 +7,7 @@ with you people i cant sustain for my lifetime
 here we have to do job for money 
 am on this coarse for a better future 
 if everything is good ill be happy
+something i donno but  these days are not good days for me 
+i think think this is not a good time for me 
+but bad time started lang ago at my final bachelors
+
