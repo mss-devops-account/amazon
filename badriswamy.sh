@@ -1,0 +1,2 @@
+pandagoww badri dengipotadu
+
