@@ -7,3 +7,4 @@ with you people i cant sustain for my lifetime
 here we have to do job for money 
 am on this coarse for a better future 
 if everything is good ill be happy
+if i get the job means its ok for them oterwise not
