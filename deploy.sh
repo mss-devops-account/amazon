@@ -7,5 +7,10 @@ noone will come to save you except urself
 so becareful about ur life
 
 
+<<<<<<< HEAD
 badri is my dost
 
+=======
+
+firstfeel free then only u will get  confdence
+>>>>>>> development
