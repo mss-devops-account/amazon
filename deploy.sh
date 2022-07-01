@@ -5,3 +5,7 @@ and want to write someting but i cant do that
 jxjkbasjbxj
 noone will come to save you except urself
 so becareful about ur life
+
+
+
+firstfeel free then only u will get  confdence
